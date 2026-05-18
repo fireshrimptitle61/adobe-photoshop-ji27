@@ -1,4 +1,4 @@
-# 
+# professional Adobe Photoshop for PC scripts is the best Adobe Photoshop for PC scripts with compositing and version-history. Safe, reliable, and optimized for maximum performance.
 
 
 
